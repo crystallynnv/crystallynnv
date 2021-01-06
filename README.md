@@ -5,7 +5,7 @@ I'm a Front-End Developer with a background in floral design and real estate. Wh
 -  😊 My Pronouns: She/Her
 -  💻 Website : [crystallynnvasquez.com](https://crystallynnvasquez.com)
 -  📫 How to reach me: [crystal.lynnv@gmail.com](mailto:crystal.lynnv@gmail.com)
-- ⚡️ Fun fact : My cats, Simba and Beyonce, have an instagram account. If you want to see it, you can [check it out here](https://www.instagram.com/beyonceandsimba/)
+- ⚡️ Fun fact : My cats, Beyonce and Simba, have an instagram account. If you want to see it, you can [check it out here](https://www.instagram.com/beyonceandsimba/)
 
 
 ---
